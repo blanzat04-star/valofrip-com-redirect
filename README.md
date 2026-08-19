@@ -1,0 +1,1 @@
+# valofrip-com-redirect
